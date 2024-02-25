@@ -22,3 +22,7 @@ Let's break down the elements:
    - "**MOVEMENT**" implies a collective effort or initiative.
 
 Overall, this design communicates a sense of purpose and unity, urging viewers to pay attention to the Myanmar GPT Movement. The simplicity of the design allows the message to stand out clearly. 🌟
+
+Designed by Sitt Wai Yan
+
+Contact : https://linktr.ee/sittwaiyan
